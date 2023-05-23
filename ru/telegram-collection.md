@@ -40,25 +40,23 @@
 
 [Nach Deutschland (Deutsche Bücher)](https://t.me/nachdeutschland_ru)
 
-
-
 ## Германия
 
 [Тем временем на крыше](https://t.me/AufDemDACH)
 
-[Ненастоящий баварец](https://t.me/muenchenleben) 899
+[Ненастоящий баварец](https://t.me/muenchenleben)
 
-[Travelclever](https://t.me/travelclever) 8326
+[Travelclever](https://t.me/travelclever)
 
-[Германия с Инессой 🇩🇪 релокация без стресса](https://t.me/inessaderus) 6001
+[Германия с Инессой 🇩🇪 релокация без стресса](https://t.me/inessaderus)
 
-[Саша пишет про Берлин](https://t.me/sasha_pishet_pro_berlin) 11164
+[Саша пишет про Берлин](https://t.me/sasha_pishet_pro_berlin)
 
-[Я эмигрант простой](https://t.me/prostushki) 768
+[Я эмигрант простой](https://t.me/prostushki)
 
-[Немецкие мюсли](https://t.me/nemusli) 24918
+[Немецкие мюсли](https://t.me/nemusli)
 
-[Берлин на колесах](https://t.me/velogidberlin) 5154
+[Берлин на колесах](https://t.me/velogidberlin)
 
 [Frau Anna, как там в Германии?](https://t.me/fourcups)
 
@@ -96,9 +94,9 @@
 
 ## Австрия
 
-[Tatiana in Austria | эмиграция | релокация | переезд | Австрия, Линц](https://t.me/tatiana_in_austria) 5100
+[Tatiana in Austria | эмиграция | релокация | переезд | Австрия, Линц](https://t.me/tatiana_in_austria)
 
-[Кое-что о Вене](https://t.me/viennastories) 5922
+[Кое-что о Вене](https://t.me/viennastories)
 
 [За окошком Альпы. Зальцбург](https://t.me/SalzburgUni)
 
