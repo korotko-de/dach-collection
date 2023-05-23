@@ -1,8 +1,8 @@
 ## Немецкий язык
 
-[Коротко о немецком](https://t.me/korotko_de)
-[Random German - случайные немецкиe слова](https://t.me/RandomGerman)
-[Коротко.ФМ. Немецкий припеваючи](https://t.me/KorotkoFM)
+[Коротко о немецком](https://t.me/korotko_de)  
+[Random German - случайные немецкиe слова](https://t.me/RandomGerman)  
+[Коротко.ФМ. Немецкий припеваючи](https://t.me/KorotkoFM)  
 
 [Funny German - смешной немецкий язык](https://t.me/FunnyGerman)
 
