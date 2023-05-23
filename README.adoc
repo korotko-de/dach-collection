@@ -1,1 +1,4 @@
+My collection of resources about german language or german speaking contries.
 
+## In Russian  
+[Telegram Channels](ru/telegram.md)
