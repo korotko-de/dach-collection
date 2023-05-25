@@ -27,7 +27,8 @@
 [Немецкий Язык | Германия | HHDEUTSCH](https://t.me/hhdeutsch)  
 [Nach Deutschland (Deutsche Bücher)](https://t.me/nachdeutschland_ru)  
 
-## Германия  
+## Германия 
+[Маша в Германии](https://t.me/maria_germany)  
 [Тем временем на крыше](https://t.me/AufDemDACH)  
 [Ненастоящий баварец](https://t.me/muenchenleben)  
 [Travelclever](https://t.me/travelclever)  
@@ -51,7 +52,6 @@
 [Пришелец](https://t.me/rusdeutschland)  
 [Любой ценой в Германию](https://t.me/nurnochtum)  
 [Tupa-Germania](https://t.me/tupagermania)  
-[Маша в Германии](https://t.me/maria_germany)  
 [Аппетитный гамбургер](https://t.me/apphamburger)  
 
 ## Австрия  
