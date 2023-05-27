@@ -28,7 +28,7 @@
 [Nach Deutschland (Deutsche Bücher)](https://t.me/nachdeutschland_ru)  
 
 ## Германия 
-[Маша в Германии](https://t.me/maria_germany)  
+[🇩🇪 Маша в Германии](https://t.me/maria_germany)  
 [Тем временем на крыше](https://t.me/AufDemDACH)  
 [Ненастоящий баварец](https://t.me/muenchenleben)  
 [Travelclever](https://t.me/travelclever)  
@@ -52,7 +52,9 @@
 [Пришелец](https://t.me/rusdeutschland)  
 [Любой ценой в Германию](https://t.me/nurnochtum)  
 [Tupa-Germania](https://t.me/tupagermania)  
-[Аппетитный гамбургер](https://t.me/apphamburger)  
+[Аппетитный гамбургер](https://t.me/apphamburger) 
+[Берлин со смыслом](https://t.me/berlin_ukraina) 
+[🇩🇪🇺🇦 Німеччина: інформаційна стрічка](https://t.me/De_Ua_live) 
 
 ## Австрия  
 [Tatiana in Austria | эмиграция | релокация | переезд | Австрия, Линц](https://t.me/tatiana_in_austria)  
