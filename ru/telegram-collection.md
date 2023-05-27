@@ -52,8 +52,8 @@
 [Пришелец](https://t.me/rusdeutschland)  
 [Любой ценой в Германию](https://t.me/nurnochtum)  
 [Tupa-Germania](https://t.me/tupagermania)  
-[Аппетитный гамбургер](https://t.me/apphamburger) 
-[Берлин со смыслом](https://t.me/berlin_ukraina) 
+[Аппетитный гамбургер](https://t.me/apphamburger)  
+[Теперь я живу в Берлине](https://t.me/berlin_ukraina) 
 [🇩🇪🇺🇦 Німеччина: інформаційна стрічка](https://t.me/De_Ua_live) 
 
 ## Австрия  
