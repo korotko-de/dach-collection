@@ -55,6 +55,7 @@
 [Аппетитный гамбургер](https://t.me/apphamburger)  
 [Теперь я живу в Берлине](https://t.me/berlin_ukraina)  
 [🇩🇪🇺🇦 Німеччина: інформаційна стрічка](https://t.me/De_Ua_live) 
+[VSB:🇺🇦Info-група для украïнців від Центру захисту прав споживача Баварії🇺🇦] (https://t.me/discussions4ukraintsiv)  
 
 ## Австрия  
 [Tatiana in Austria | эмиграция | релокация | переезд | Австрия, Линц](https://t.me/tatiana_in_austria)  
