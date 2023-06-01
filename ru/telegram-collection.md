@@ -25,7 +25,7 @@
 [Nibelungen](https://t.me/schnellde)  
 [Das Licht der Faulenzerei, Besserwisserei und Verrücktheit](https://t.me/nachtmitmondlicht)  
 [Немецкий Язык | Германия | HHDEUTSCH](https://t.me/hhdeutsch)  
-[Nach Deutschland (Deutsche Bücher)](https://t.me/nachdeutschland_ru)  
+
 
 ## Германия 
 [🇩🇪 Маша в Германии](https://t.me/maria_germany)  
