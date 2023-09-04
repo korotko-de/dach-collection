@@ -23,3 +23,6 @@
 🔸 [Немецкий с удовольствием](https://t.me/okaydeutsch)  
 🔸 [SPRACHE](https://t.me/Sprache_D)  
 🔸 [Online Teacher. Miro. Английский/Немецкий](https://t.me/onlineteachersmiro)  
+🔸 [Шпик и Брецель](https://t.me/jamonandbrezel)  
+🔸 [🇩🇪 Sascha & Deutsch](https://t.me/sascha_deutsch)  
+🔸 [🇩🇪 alyonchik | Deutsch | немецкий](https://t.me/alyonchichik_deutsch)  
