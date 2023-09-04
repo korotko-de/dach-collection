@@ -34,3 +34,5 @@
 🔸 [Мюнхен Котидьен](https://t.me/munchen_nice_quotidien)  
 🔸 [дневник поехавшей 🚞 германия](https://t.me/poehali_diary)  
 🔸 [Where to eat in Berlin 🍽](https://t.me/wheretoeatinberlin)  
+🔸 [Немецкий гастарбайтер](https://t.me/gaster_de)  
+🔸 [Мюнхен Котидьен](https://t.me/munchen_nice_quotidien)  
