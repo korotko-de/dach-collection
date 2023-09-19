@@ -37,3 +37,5 @@
 🔸 [Немецкий гастарбайтер](https://t.me/gaster_de)  
 🔸 [Мюнхен Котидьен](https://t.me/munchen_nice_quotidien)  
 🔸 [DACHstube](https://t.me/DACHstube)  
+🔸 [Перелётная врач](https://t.me/zugvoegelin)  
+🔸 [Музыкальная Германия](https://t.me/music_munich)  
