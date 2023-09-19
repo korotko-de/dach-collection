@@ -15,3 +15,4 @@
 🔸 [What if I fall? What if you fly?](https://t.me/wiifwiyf)  
 🔸 [Зорка Travel](https://t.me/s/zorkatravel)  
 🔸 [Туры с Олей Лучич](https://t.me/tours_olya_lucic)  
+🔸 [Deutsch Melange](https://t.me/wiendeutsch)  
