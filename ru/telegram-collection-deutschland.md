@@ -39,3 +39,4 @@
 🔸 [DACHstube](https://t.me/DACHstube)  
 🔸 [Перелётная врач](https://t.me/zugvoegelin)  
 🔸 [Музыкальная Германия](https://t.me/music_munich)  
+🔸 [Самые вкусные места Берлина](https://t.me/BerlinFood)  
